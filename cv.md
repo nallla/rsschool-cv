@@ -23,7 +23,8 @@ _Coca-Cola Beverages Belarus Unitary Enterprise_
 
 ## Formation:
 
-__SSTU named after P. I. Sukhoi (Gomel)__\ Graduated in 2012\
+__SSTU named after P. I. Sukhoi (Gomel)__\
+Graduated in 2012\
 _Mechanical and technological, machines and technology of foundry production, Engineer, organization and management of foundry production_
 
 ## Language proficiency
