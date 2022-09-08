@@ -1,1 +1,1 @@
-# rsschool-cv
+https://nallla.github.io/rsschool-cv/cv
